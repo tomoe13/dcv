@@ -6,8 +6,8 @@ Publications, events, developments, and miscellaneous.
 
 ###2013
 
-	unit
-	unit
+	2013.09.27
+	Lecture at IAMAS
 	
 	unit
 	unit
