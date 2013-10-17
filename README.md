@@ -426,8 +426,6 @@ Artist Clip：宇川直宏-カオス・メディエーター　ドミニク・�
 
 - 美術手帖 展評・東京エリア　2001.12~2002.06
 
-###2000
-
 ###1999
 
 - Baccalauréat Scientifique (Lycée Français de Los Angeles) ▶ 仏理系バカロレア取得
